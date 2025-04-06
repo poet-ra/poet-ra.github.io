@@ -1,2 +1,13 @@
-# poet-ra.github.io
-Late Teens: Poetry from 17 to 19
+### Late Teens: Poetry from 17 to 19
+***
+### <div align="center">Prologue</div>
+
+Hello,
+
+<div align="right">It’s weird now. I find myself grieving my past and fearing my future. For so long</div> I’ve been held together by a thread that I pulled tight- so tight that I think it has snapped and I’m beginning to come undone. But picking myself back up has been a seminal experience, and what seems to define the general vibe of “your 20’s”. Below is a collection of poetry, I call it “Late-teens”. It started when I was 17 and I was feeling too much emotion that I had too little ways of expressing. I always had outlets like theater, soccer, work, etc.; but a second year into some little pandemic you may have heard of made all of those outlets inaccessible. I wrote something down in my notes, and sent it to two of my friends… they really liked it. Their genuine appreciation made me feel something I haven’t in so long, something that was so desperately missing from the fabric of my body. I decided that I would continue to write down these poems until my next birthday and collect them into one body of work, aptly titled “17”. However, i soon realized that 18 didn’t feel far different from 17… you’re still a “teen” after all. So I decided to continue writing these poems and combine “18” with “17”- and then “19”. I had three years of work in my hands. A written record of my emotional state through some of the most transformative times I went through. I wrote about everything from romance and fear and deep sadness, politics and the earth and subjects i liked (but mostly romance hehe). I knew what I wanted to do with all of this: put it somewhere on the internet, free so I can share my work with people who might also like it as much as I do. On my twentieth birthday, I decided that I would upload it online for all to see. That was almost a year ago (life has a funny way of not moving forward sometimes). Now here I am, approaching the anniversary of my stagnation- finally feeling the fire under my ass to do the thing I kept telling myself I had to get to over and over and over, and over, again. So here it is: “Late-teens”. While the poems have been compiled into three sections by my age, i have also preserved the order I wrote them in and have not made any future edits; what you see below is how I intended it to exist when I was 17, 18, 19. Perhaps you can see a sort of… progress in all of it. Enjoy my little pop culture and history references mixed in with existential yearning and lust, and other ramblings.
+
+Thank you (with love),
+
+RA
+
+P.S. If you cringe at something I wrote, just know that I probably cringed too rereading it  years later. But cringe culture is lowkey dead anyway… embrace authenticity.
